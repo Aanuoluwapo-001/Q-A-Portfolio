@@ -61,7 +61,7 @@ I am looking for an opportunity as a QA Tester where I can apply my technical ba
 
 ## Contact
 
-Email: aanuoluwapo.i.afolabi@gmail.com  
+Email: aanuoluwapoflb@gmail.com  
 Phone: +2348161243355  
 Location: Abuja, Nigeria  
 
